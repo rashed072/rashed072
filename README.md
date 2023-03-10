@@ -1,4 +1,4 @@
-![I want to be an expert  software engineer.](https://scontent.xx.fbcdn.net/v/t1.15752-9/319187834_459747033008325_443325703083327727_n.jpg?stp=dst-jpg_s403x403&_nc_cat=100&ccb=1-7&_nc_sid=aee45a&_nc_eui2=AeH5nG-6u6cwU-z9VS0AWTfV_RXT50e77r_9FdPnR7vuv84L88qN4hkYRmVjfih3ehPwxbuxvNgYp-_zUzJkbJhd&_nc_ohc=w7NnVRzOF50AX-OJ_0N&_nc_ad=z-m&_nc_cid=0&_nc_ht=scontent.xx&oh=03_AdRE4KiA8K4vEPxoI1lhqHq-_NHJmfpBMiH9IMtF-zkouw&oe=63BE8DDA)
+![I want to be an expert  software engineer.]
 
 ### Hi there 👋, I am Md. Rashedul Islam
 #### I want to be an expert  software engineer.
